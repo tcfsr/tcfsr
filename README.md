@@ -1,7 +1,7 @@
-->
+<p align="center">
 <img src="https://files.catbox.moe/uh60tp.webp"/>
 read my rentry or leave stuff on my ata if you gaf<br>mostly afk or offtab, c+h is fine idrc
-<-
+</p>
 <!--
 **tcfsr/tcfsr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
