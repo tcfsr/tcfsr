@@ -1,7 +1,5 @@
 <img src="https://files.catbox.moe/6pszz5.webp"/>
-read my rentry or leave stuff on my ata if you gaf
-<br></br>
-mostly afk or offtab, c+h is fine idrc
+read my rentry or leave stuff on my ata if you gaf<br>mostly afk or offtab, c+h is fine idrc
 
 <!--
 **tcfsr/tcfsr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
