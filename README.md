@@ -1,4 +1,4 @@
-<img src="https://files.catbox.moe/6pszz5.webp"/>
+<img src="https://files.catbox.moe/uh60tp.webp"/>
 read my rentry or leave stuff on my ata if you gaf<br>mostly afk or offtab, c+h is fine idrc
 
 <!--
