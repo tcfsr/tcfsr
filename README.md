@@ -1,5 +1,5 @@
 <img src="https://files.catbox.moe/6pszz5.webp"/>
-# mostly afk or offtab, c+h is fine
+## mostly afk or offtab, c+h is fine
 
 <!--
 **tcfsr/tcfsr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
