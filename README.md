@@ -1,5 +1,5 @@
 <p align="center">
-![Profile View Counter](https://komarev.com/ghpvc/?username=your-github-username&abbreviated=true)
+[Profile View Counter](https://komarev.com/ghpvc/?username=tcfsr&abbreviated=true)
 <img src="https://files.catbox.moe/uh60tp.webp"/><br>
 read rentry or leave stuff on ata if u gaf<br>mostly afk or offtab, c+h is fine idrc
 </p>
