@@ -1,5 +1,5 @@
 <p align="center">
 og thanggi fan<br>
-<img src="https://files.catbox.moe/uh60tp.webp"/><br>
-read rentry or leave stuff on ata if u gaf<br>mostly afk or offtab, c+h is fine idrc
+<img src="https://files.catbox.moe/sax72k.jpg"/><br>
+hi read rentry, w2i cs im always out of my shit
 </p>
