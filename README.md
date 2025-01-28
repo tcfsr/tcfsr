@@ -2,5 +2,5 @@
 og thanggi fan<br>
 <img src="https://files.catbox.moe/sax72k.jpg"/><br>
 w2i cs im always out of my shit<br>
-I LOVE MY PARTNER!!!!
+read <a href="https://rentry.co/thanggi">rentry</a> or sign <a href="https://mcr.atabook.org">ata</a>
 </p>
