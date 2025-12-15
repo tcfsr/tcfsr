@@ -1,4 +1,4 @@
-<p align="center"> <img src="https://files.catbox.moe/uqmyfl.jpg"> <br>
+<p align="center">
 w2i since im mostly afk <br>
 also c+h is fine <br>
 read <a href="https://rentry.co/bigbang">rentry</a> or sign <a href="https://mcr.atabook.org">ata</a> <br>
