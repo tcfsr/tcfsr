@@ -1,6 +1,5 @@
-<p align="center">
-w2i since im mostly afk <br>
-also c+h is fine <br>
+<p align="center"> 
+w2i, mostly afk <br> 
 read <a href="https://rentry.co/bigbang">rentry</a> or sign <a href="https://mcr.atabook.org">ata</a> <br>
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=8lfcjiag09gc9cd5t7mcghhau&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=ffffff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
